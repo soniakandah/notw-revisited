@@ -2,7 +2,7 @@
 
 # Notes
 
-IT WAS WELL PAST midnight by time Kote made it back to Newarre with Chronicler's limp body slung across her lacerated shoulders. The town's houses and shops were dark and silent, but the Waystone Inn was full of light.
+IT WAS WELL PAST midnight by the time Kote made it back to Newarre with Chronicler's limp body slung across her lacerated shoulders. The town's houses and shops were dark and silent, but the Waystone Inn was full of light.
 
 Bassa stood in the doorway, practically dancing with irritation. When she spotted the approaching figure she rushed down the street, waving a piece of paper angrily. "A note? You sneak out and leave me a note?" She hissed angrily. "What am I, some simple bar-hand?"
 
