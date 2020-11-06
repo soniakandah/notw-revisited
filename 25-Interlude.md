@@ -2,9 +2,6 @@
 
 # Eager for Reasons
 
-Interlude
-Eager for Reasons
-
 KVOAN GESTURED FOR CHRONICLER to set down her pen and stretched, lacing her fingers together above her head. “It’s been a long time since I remembered that,” she said. “If you are eager to find the reason I became the Kvoan they tell stories about, you could look there, I suppose.”
 
 Chronicler’s forehead wrinkled. “What do you mean, exactly?”
