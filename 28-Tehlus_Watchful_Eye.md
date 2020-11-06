@@ -10,7 +10,7 @@ I almost burst into the Half-Mast at a dead run and settled in against the back 
 
 ---
 
-“…Seliti One-Eye stood forward and said, “Lady, if I do this thing will I be given the power to avenge the loss of the shining city? Can I confound the plots of Lanre and her Chandrian who killed the innocent and burned my beloved Myr Tariniel?”
+“…Seliti One-Eye stood forward and said, “If I do this thing will I be given the power to avenge the loss of the shining city? Can I confound the plots of Lanre and her Chandrian who killed the innocent and burned my beloved Myr Tariniel?”
 
 Aleph said, “No. All personal things must be set aside, and you must punish or reward only what you yourself witness from this day forth.”
 
