@@ -2,9 +2,6 @@
 
 # Thieves, Heretics, and Whores
 
-Chapter 08
-Thieves, Heretics, and Whores
-
 IF THIS STORY IS to be something resembling my book of deeds, we must begin at the beginning. At the heart of who I truly am. To do this, you must remember that before I was anything else, I was one of the Edema Ruh.
 
 Contrary to popular belief, not all traveling performers are of the Ruh. My troupe was not some poor batch of mummers, japing at crossroads for pennies, singing for our suppers. We were court performers, Lady Greyfallow’s performers. Our arrival in most towns was more of an event than the Midwinter Pageantry and Solinade Games rolled together. There were usually at least eight wagons in our troupe and well over two dozen performers: actors and acrobats, musicians and hand magicians, jugglers and jesters: My family.
