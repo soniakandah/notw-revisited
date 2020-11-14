@@ -2,39 +2,48 @@
 
 # Yet to Learn
 
+
+Previous Chapter
+Table of Contents
+Compare to Original
+Next Chapter 
+
+Chapter 34
+Yet to Learn
+
 THE NEXT MORNING I blearily awoke after two hours of sleep, bundled myself onto one of the wagons and proceeded to drowse away the morning. It was nearly noon before I realized that we had taken on another passenger at the inn last night.
 
-His name was Josn, and he had paid Roent for passage to Anilin. He had an easy manner and an honest smile. He seemed an earnest man. I did not like him.
+Her name was Josephine, and she had paid Roe for passage to Anilin. She had an easy manner and an honest smile. She seemed earnest. I did not like her.
 
-My reason was simple. He spent the entire day riding next to Denna. He flattered her outrageously and joked with her about becoming one of his wives. She seemed unaffected by the late hours we had kept the night before, looking as bright and fresh as ever.
+My reason was simple. She spent the entire day riding next to Deren. She flattered him outrageously and joked with him effortlessly. She seemed unaffected by the late hours we had kept the night before, looking as bright and fresh as ever.
 
-The result was that I spent the day being irritated and jealous while acting unconcerned. Since I was too proud to join their conversation, I was left to myself. I spent the day thinking sullen thoughts, trying to ignore the sound of his voice and occasionally remembering the way Denna had looked last night with the moon reflecting off the water behind her.
+The result was that I spent the day being irritated and jealous while acting unconcerned. Since I was too proud to join their conversation, I was left to myself. I spent the day thinking sullen thoughts, trying to ignore the sound of her voice and occasionally remembering the way Deren had looked last night with the moon reflecting off the water behind him.
 
-That night I was planning to ask Denna to go for a walk after everyone turned in for the night. But before I could approach her, Josn went to one of the wagons and brought back a large black case with brass buckles along the side. The sight of it made my heart turn sideways in my chest.
+That night I was planning to ask Deren to go for a walk after everyone turned in for the night. But before I could approach him, Josephine went to one of the wagons and brought back a large black case with brass buckles along the side. The sight of it made my heart turn sideways in my chest.
 
-Sensing the group’s anticipation, though not mine in particular, Josn slowly undid the brass clasps and drew out his lute with an air of studied nonchalance. It was a trouper’s lute, its long, graceful neck and round bowl were painfully familiar. Sure of everyone’s attention, he cocked his head and strummed, pausing to listen to the sound. Then, nodding to himself, he started to play.
+Sensing the group’s anticipation, though not mine in particular, Josephine slowly undid the brass clasps and drew out her lute with an air of studied nonchalance. It was a trouper’s lute, its long, graceful neck and round bowl were painfully familiar. Sure of everyone’s attention, she cocked her head and strummed, pausing to listen to the sound. Then, nodding to herself, she started to play.
 
-He had a fair tenor and reasonably clever fingers. He played a ballad, then a light, quick drinking song, then a slow, sad melody in a language that I didn’t recognize but suspected might be Yllish. Lastly he played “Tinker Tanner,” and everyone came in on the chorus. Everyone but me.
+She had a fair voice and reasonably clever fingers. She played a ballad, then a light, quick drinking song, then a slow, sad melody in a language that I didn’t recognize but suspected might be Yllish. Lastly she played “Tinker Tanner,” and everyone came in on the chorus. Everyone but me.
 
-I sat still as stone with my fingers aching. I wanted to play, not listen. Want isn’t strong enough a word. I was hungry for it, starved. I’m not proud of the fact that I thought about stealing his lute and leaving in the dark of the night.
+I sat still as stone with my fingers aching. I wanted to play, not listen. Want isn’t strong enough a word. I was hungry for it, starved. I’m not proud of the fact that I thought about stealing her lute and leaving in the dark of the night.
 
-He finished the song with a flourish, and Roent clapped his hands a couple of times to get everyone’s attention. “Time for sleep. You sleep too late-”
+She finished the song with a flourish, and Roe clapped their hands a couple of times to get everyone’s attention. “Time for sleep. You sleep too late-”
 
-Derrik broke in, gently teasing. “…we get left behind. We know, Master Roent. We’ll be ready to roll with the light.”
+Brandy broke in, gently teasing. “…we get left behind. We know, Master Roe. We’ll be ready to roll with the light.”
 
-Josn laughed and flipped open his lute case with his foot. But before he could put it away I called over to him. “Could I see that for a second?” I tried to keep the desperation out of my voice, tried to make it sound like idle curiosity.
+Josephine laughed and flipped open her lute case with her foot. But before she could put it away I called over to her. “Could I see that for a second?” I tried to keep the desperation out of my voice, tried to make it sound like idle curiosity.
 
-I hated myself for the question. Asking to hold a musician’s instrument is roughly similar to asking to kiss a man’s wife. Nonmusicians don’t understand. An instrument is like a companion and a lover. Strangers ask to touch and hold with annoying regularity. I knew better, but I couldn’t help myself. “Just for a second?”
+I hated myself for the question. Asking to hold a musician’s instrument is roughly similar to asking to kiss another’s lover. Nonmusicians don’t understand. An instrument was in it’s own way a companion and a lover. Strangers ask to touch and hold with annoying regularity. I knew better, but I couldn’t help myself. “Just for a second?”
 
-I saw him stiffen slightly, reluctant. But keeping friendly appearances is a minstrel’s business just as much as music. “Certainly,” he said with a jocularity that I saw as false but was probably convincing for the others. He strode over to me and held it out. “Be careful…”
+I saw her stiffen slightly, reluctant. But keeping friendly appearances is a minstrel’s business just as much as music. “Certainly,” she said with a jocularity that I saw as false but was probably convincing for the others. She strode over to me and held it out. “Be careful…”
 
-Josn took a couple of steps back and gave a very good appearance of being at ease. But I saw how he stood with his arms slightly bent, ready to rush forward and whisk the lute away from me if the need arose.
+Josephine took a couple of steps back and gave a very good appearance of being at ease. But I saw how she stood with her arms slightly bent, ready to rush forward and whisk the lute away from me if the need arose.
 
-I turned it over in my hands. Objectively, it was nothing special. My father would have rated it as one short step above firewood. I touched the wood. I cradled it against my chest.
+I turned it over in my hands. Objectively, it was nothing special. My mother would have rated it as one short step above firewood. I touched the wood. I cradled it against my chest.
 
 I spoke without looking up. “It’s beautiful,” I said softly, my voice rough with emotion.
 
-It was beautiful . It was the most beautiful thing I had seen in three years. More beautiful than the sight of a spring field after three years of living in that pestilent cesspit of a city. More beautiful than Denna. Almost.
+It was beautiful. It was the most beautiful thing I had seen in three years. More beautiful than the sight of a spring field after three years of living in that pestilent cesspit of a city. More beautiful than Deren. Almost.
 
 I can honestly say that I was still not really myself. I was only four days away from living on the streets. I was not the same person I had been back in the days of the troupe, but neither was I yet the person you hear about in stories. I had changed because of Tarbean. I had learned many things it would have been easier to live without.
 
@@ -42,7 +51,7 @@ But sitting beside the fire, bending over the lute, I felt the hard, unpleasant 
 
 I sounded the strings, one at a time. When I hit the third it was ever so slightly off and I gave one of the tuning pegs a minute adjustment without thinking.
 
-“Here now, don’t go touching those,” Josn tried to sound casual, “you’ll turn it from true.” But I didn’t really hear him. The singer and all the rest couldn’t have been farther away from me if they’d been at the bottom of the Centhe Sea.
+“Here now, don’t go touching those,” Josephine tried to sound casual, “you’ll turn it from true.” But I didn’t really hear her. The singer and all the rest couldn’t have been farther away from me if they’d been at the bottom of the Centhe Sea.
 
 I touched the last string and tuned it too, ever so slightly. I made a simple chord and strummed it. It rang soft and true. I moved a finger and the chord went minor in a way that always sounded to me as if the lute were saying sad. I moved my hands again and the lute made two chords whispering against each other. Then, without realizing what I was doing, I began to play.
 
@@ -52,14 +61,14 @@ Then I felt something inside me break and music began to pour out into the quiet
 
 I don’t know how long I played. It could have been ten minutes or an hour. But my hands weren’t used to the strain. They slipped and the music fell to pieces like a dream on waking.
 
-I looked up to see everyone perfectly motionless, their faces ranging from shock to amazement. Then, as if my gaze had broken some spell, everyone stirred. Roent shifted in his seat. The two mercenaries turned and raised eyebrows at each other. Derrik looked at me as if he had never seen me before.
+I looked up to see everyone perfectly motionless, their faces ranging from shock to amazement. Then, as if my gaze had broken some spell, everyone stirred. Roe shifted in their seat. The two mercenaries turned and raised eyebrows at each other. Brandy looked at me as if she had never seen me before.
 
-Reta remained frozen, her hand held in front of her mouth. Denna lowered her face into her hands and began to cry in quiet, hopeless sobs.
+Reta remained frozen, her hand held in front of her mouth. Deren lowered his face into his hands and I could see tears on the corners of his lovely eyes.
 
-Josn simply stood. His face was stricken and bloodless as if he had been stabbed.
+Josephine simply stood. Her face was stricken and bloodless as if she had been stabbed.
 
-I held out the lute, not knowing whether to thank him or apologize. He took it numbly. After a moment, unable to think of anything to say, I left them sitting by the fire and walked toward the wagons.
+I held out the lute, not knowing whether to thank her or apologize. She took it numbly. After a moment, unable to think of anything to say, I left them sitting by the fire and walked toward the wagons.
 
-And that is how Kvothe spent his last night before he came to the University, with his cloak as both his blanket and his bed. As he lay down, behind him was a circle of fire, and before him lay shadow like a mantle, gathered. His eyes were open, that much is certain, but who among us can say they know what he was seeing?
+And that is how Kvoan spent her last night before she came to the University, with her cloak as both her blanket and her bed. As she lay down, behind her was a circle of fire, and before her lay shadow like a mantle, gathered. Her eyes were open, that much is certain, but who among us can say they know what she was seeing?
 
-Look behind him instead, to the circle of light that the fire has made, and leave Kvothe to himself for now. Everyone deserves a moment or two alone when they desire it. And if by chance there were tears, let us forgive him. He was just a child, after all, and had yet to learn what sorrow really was.
+Look behind her instead, to the circle of light that the fire has made, and leave Kvoan to herself for now. Everyone deserves a moment or two alone when they desire it. And if by chance there were tears, let us forgive her. She was just a child, after all. There were still many things she had yet to learn, many more sorrows she had yet to bear. 
