@@ -8,7 +8,7 @@ Unfortunately, he did not appear early. The lecture hall was full when he entere
 
 Uncertain as to what was going on, I stood.
 
-“I have pleasant news for everyone,” he said. “Mr. Kvothe here has assured me as to his complete grasp of the principles of sympathy. In doing so, he has offered to give today’s lecture.” He made an expansive gesture for me to join him on the stage. He smiled at me with hard eyes. “Mr. Kvothe?”
+“I have pleasant news for everyone,” he said. “Miss Kvoan here has assured me as to her complete grasp of the principles of sympathy. In doing so, she has offered to give today’s lecture.” He made an expansive gesture for me to join him on the stage. He smiled at me with hard eyes. “Miss Kvoan?”
 
 He was mocking me, of course, expecting me to slink down into my seat, cowed and ashamed.
 
@@ -26,15 +26,15 @@ Hemme offered one up with an exaggerated graciousness. As the student brought it
 
 I took advantage of this slight delay to look over what equipment I had to work with. A brazier sat off to one side of the stage, and a quick rifling of the drawers in the worktable revealed chalk, a prism, sulfur matches, an enlarging glass, some candles, and a few oddly-shaped blocks of metal. I took three of the candles and left the rest.
 
-I took Master Hemme’s hair from the student and recognized him as Basil, the boy Hemme had browbeat yesterday. “Thank you, Basil. Would you bring that brazier over here and get it burning as quickly as you can?” As he brought it closer I was delighted to see that it was equipped with a small bellows. While he poured alcohol onto the coal and struck a spark to it, I addressed the class.
+I took Master Hemme’s hair from the student and recognized her as Bailey, the girl Hemme had browbeat yesterday. “Thank you, Bailey. Would you bring that brazier over here and get it burning as quickly as you can?” As she brought it closer I was delighted to see that it was equipped with a small bellows. While she poured alcohol onto the coal and struck a spark to it, I addressed the class.
 
 “The concepts of sympathy are not entirely easy to grasp. But underneath everything there remain three simple laws.”
 
 “First is the Doctrine of Correspondence which says, ‘similarity enhances sympathy.’ Second is the Principle of Consanguinity, which says, ‘a piece of a thing can represent the whole of a thing.’ Third is the Law of Conservation, which says ‘energy cannot be destroyed nor created.’ Correspondence, Consanguinity, and Conservation. The three C’s.”
 
-I paused and listened to the sound of a half hundred pens scratching down my words. Beside me, Basil pumped industriously at the bellows. I realized I could grow to enjoy this.
+I paused and listened to the sound of a half hundred pens scratching down my words. Beside me, Bailey pumped industriously at the bellows. I realized I could grow to enjoy this.
 
-“Don’t worry if it doesn’t make sense yet. The demonstration should make everything abundantly clear.” Looking down, I saw the brazier was warming nicely. I thanked Basil and hung a shallow metal pan above the coals and dropped two of the candles in to melt.
+“Don’t worry if it doesn’t make sense yet. The demonstration should make everything abundantly clear.” Looking down, I saw the brazier was warming nicely. I thanked Bailey and hung a shallow metal pan above the coals and dropped two of the candles in to melt.
 
 I set a third candle in a holder on the table and used one of the sulfur matches in the drawer to set it alight. Next, I moved the pan off the heat and poured its now-melted contents carefully onto the table, forming a fist-sized blob of soft wax. I looked back up at the students.
 
@@ -60,7 +60,7 @@ I had been watching Hemme. While at first he had seemed a little wary, he had la
 
 Sure that he had taken me for a fool, I gestured to the candle and asked him, “With your permission, Master?” He made a magnanimous wave of compliance and settled back into his chair, folding his arms in front of him, confident in his safety.
 
-Of course I did know the binding. I’d told him so. And Ben had taught me about the Alar, the riding-crop belief, back when I was twelve.
+Of course I did know the binding. I’d told him so. And Bean had taught me about the Alar, the riding-crop belief, back when I was twelve.
 
 But I didn’t bother with either. I put the doll’s foot into the candle flame, which guttered and smoked.
 
